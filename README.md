@@ -60,3 +60,10 @@ Aqui estão os livros do Alex Tapscott e do Don Tapscott também em ordem cronol
 
 - [Augusto Backes](https://open.spotify.com/show/6HbxnPw4sxnwn87EsG307Y?si=58c0701062104b9c)
 
+## 💰 Documentários
+
+- [Cryptopia](https://www.youtube.com/watch?v=l5TqlnD1ZSI)
+
+- [Banking on Africa](https://www.youtube.com/watch?v=_VT_zpHQzBE)
+
+- [Banking on Bitcoin](https://www.youtube.com/watch?v=ByvbAi924TI)
